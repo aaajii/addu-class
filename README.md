@@ -1,8 +1,11 @@
-# addu-class
-
-#GUYS PAKIBASA ANI PLS IMPORTANT ANNOUNCEMENT:
+#Mga Cool brodis who joined the git crash course
 
 
-okekayooooo
-
+James Reid (HOY UNSAMANI ZYKIE HAHAHA)
 elijah
+VINCE LEVI GELI SORRERA
+Discee Grace P. Deligos
+PORTAL
+BYRON SIMON SOLARTE
+Joseph J. Nasser
+Nemuel Balico
