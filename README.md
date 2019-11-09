@@ -1,6 +1,8 @@
-# addu-class
-# Discee Grace P. Deligos
-#GUYS PAKIBASA ANI PLS IMPORTANT ANNOUNCEMENT:
+#Mga Cool brodis who joined the git crash course
 
+VINCE LEVI GELI SORRERA
+Discee Grace P. Deligos
+PORTAL
+BYRON SIMON SOLARTE
+Joseph J. Nasser
 
-okekayooooo
