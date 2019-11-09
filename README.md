@@ -1,8 +1,5 @@
-# addu-class
+#Mga Cool brodis who joined the git crash course
 
-#GUYS PAKIBASA ANI PLS IMPORTANT ANNOUNCEMENT:
-
-
-okekayooooo
-
+BYRON SIMON SOLARTE
+Joseph J. Nasser
 VINCE LEVI GELI SORRERA
